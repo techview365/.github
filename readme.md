@@ -1,0 +1,1 @@
+TechView365 is a platform designed to provide part-time work solutions for developers. We understand that finding the right opportunity can be tough, so we connect developers with projects that fit their skills and availability. Our goal is to make work more rewarding and provide a better balance for talented individuals.
